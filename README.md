@@ -1,0 +1,2 @@
+# Krunker.io-Aimbot
+AIMBOT
